@@ -1,3 +1,7 @@
+<b>friends of cal: please read!</b> <br>
+as of 10/28/2026, cal (the owner of the github) has gone dormant, and from now on, the backup host (felix) will be the main person you interact with. the reason for cal's sudden dormancy is unknown, and we're very sorry to anyone who is only cal's friend and not the entire system. very, very sorry. felix has been fronting for the past 2 weeks, so we hope that it doesnt bother anybody too much that i am.. not cal.<br>
+- adding on, you may interact with other alters that we dont really specify. if we're not typing how we usually do, or acting in general, feel free to ask for fronter.
+
   <div align="center" max-width="200px">
     <br><br>
     <!--lomedy-->
