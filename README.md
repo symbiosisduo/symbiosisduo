@@ -3,4 +3,5 @@ if you ever see a nominations account with nominations open nominate me for the 
 if you do this tell me on my ata i wanna list them out<br>
 <a href="https://biohammer.atabook.org">ata</a>
 <br><br>
-<a href="https://github.com/THE-TEMPIST">the tempist's</a> <b>spongs</b> (uu)
+<a href="https://github.com/THE-TEMPIST">the tempist's</a> <b>spongs</b> (uu)<br>
+ponytown's number 1 <b>toxichero + ninecapten</b> <a href="https://github.com/THENUMBERONESHIPPER">shipper</a>
